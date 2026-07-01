@@ -1,9 +1,9 @@
 # _Arthur Gonçalves Kist_
 __[Luv(sic) Hexalogy](https://open.spotify.com/intl-pt/album/1cN1GECqXrHlPhLX7LGg3e?si=PiZ2lm7XR8KL_2l5ayT4Bw)__
 
-1. Luv(sic)
-2. Luv(sic) pt2
-3. Luv(sic) pt3
+_1. Luv(sic)_
+_2. Luv(sic) pt2_
+_3. Luv(sic) pt3_
 
 **K1st19/K1st19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
