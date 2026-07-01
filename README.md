@@ -1,9 +1,10 @@
-# Olá, sou Arthur Gonçalves Kist
+*Feather
+**Luv
+***Sic
+****Nujabes
+*****Redmi
+******DBD
 
-## Linguagens 
-## Minhas Formações
-
-<!--
 **K1st19/K1st19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
