@@ -1,10 +1,5 @@
-# _Arthur Gonçalves Kis_
-# Feather
-## Luv
-### Sic
-#### Nujabes
-##### Redmi
-###### DBD
+# _Arthur Gonçalves Kist_
+__[Luv(sic) Hexalogy] (https://open.spotify.com/intl-pt/album/1cN1GECqXrHlPhLX7LGg3e?si=PiZ2lm7XR8KL_2l5ayT4Bw)__
 
 **K1st19/K1st19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
