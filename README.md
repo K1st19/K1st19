@@ -4,6 +4,7 @@ __[Luv(sic) Hexalogy](https://open.spotify.com/intl-pt/album/1cN1GECqXrHlPhLX7LG
 1. _Luv(sic)_
 2. _Luv(sic) pt2_
 3. _Luv(sic) pt3_
+   [Luv](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRv5_WTo3go6ghRTtxeSm2vK8qelSE57LiMwdnAiKK6Jw&s=10)
 
 **K1st19/K1st19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
