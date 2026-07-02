@@ -1,5 +1,5 @@
 # _Arthur Gonçalves Kist_
-![MF Doom](https://chatgpt.com/backend-api/estuary/content?id=file_00000000e690720ea95eb3e7fcedd0d9&ts=495264&p=fs&cid=1&sig=546334c998f9534bd6e056e4597266d04b1927e7ea37daccf6233c1f04896b03&v=0)
+![MF Doom](hhttps://chatgpt.com/backend-api/estuary/content?id=file_00000000e690720ea95eb3e7fcedd0d9&ts=495264&p=fs&cid=1&sig=546334c998f9534bd6e056e4597266d04b1927e7ea37daccf6233c1f04896b03&v=0)
 __[Luv(sic) Hexalogy](https://open.spotify.com/intl-pt/album/1cN1GECqXrHlPhLX7LGg3e?si=PiZ2lm7XR8KL_2l5ayT4Bw)__
 
 1. _Luv(sic)_ 
