@@ -2,7 +2,7 @@
 __[Luv(sic) Hexalogy](https://open.spotify.com/intl-pt/album/1cN1GECqXrHlPhLX7LGg3e?si=PiZ2lm7XR8KL_2l5ayT4Bw)__
 
 1. _Luv(sic)_ 
-2. _Luv(sic) pt2_ ![Luv](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRv5_WTo3go6ghRTtxeSm2vK8qelSE57LiMwdnAiKK6Jw&s=0,2)
+2. _Luv(sic) pt2_ ![Luv](https://gstatic.com/images?q=tbn:ANd9GcRv5_WTo3go6ghRTtxeSm2vK8qelSE57LiMwdnAiKK6Jw&s=1)
 3. _Luv(sic) pt3_
 
 
