@@ -1,5 +1,5 @@
 # _Arthur Gonçalves Kist_
-![MF Doom](https://i.pinimg.com/vwebp/1200x/4b/46/b7/4b46b7a612a796311e11c8e1f2d77e2f.webp)
+![MF Doom](https://i.pinimg.com/vwebp/1200x/80/7a/1a/807a1a2700bd768a03f50c29d29289f8.webpp)
 __[Luv(sic) Hexalogy](https://open.spotify.com/intl-pt/album/1cN1GECqXrHlPhLX7LGg3e?si=PiZ2lm7XR8KL_2l5ayT4Bw)__
 
 1. _Luv(sic)_ 
